@@ -15,7 +15,7 @@ Acá les tiro algunos **datos** sobre mí:
 
  - Tengo dos gatitos llamados Edward y Aurora (adjunto foto de ellos abajo de todo)🐱
 
- - En mi tiempo libro canto, veo Gilmore girls y escribo canciones 🎤
+ - En mi tiempo libre canto, veo Gilmore girls y escribo canciones 🎤
  
  ![Vicki](yo.jpeg)
   
