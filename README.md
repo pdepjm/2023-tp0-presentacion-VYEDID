@@ -11,7 +11,7 @@ Acá les tiro algunos **datos** sobre mí:
 
  - Actualmente me encuentro haciendo una pasantía en Ciberseguridad en un banco  👩🏻‍💻
 
- - Soy hincha del Club Atlético Taylor Swift (folklore y speak now son simplemente increíbles) 💽
+ - Soy hincha del Club Atlético Taylor Swift  💽
 
  - Tengo dos gatitos llamados Edward y Aurora (adjunto foto de ellos abajo de todo)🐱
 
